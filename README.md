@@ -9,7 +9,7 @@
 
 - 🤝 I’m looking for help with **any defi projects**
 
-- 📝 I regularly write articles on [https://warpcast.com/kykyxa33](https://warpcast.com/kykyxa33)
+- 📝 I regularly write articles on https://warpcast.com/pomidorchik
 
 - 📫 How to reach me **fits_biofilm_0n@icloud.com**
 
